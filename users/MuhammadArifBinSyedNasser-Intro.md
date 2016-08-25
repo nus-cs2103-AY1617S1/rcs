@@ -1,1 +1,0 @@
-I am a binary cisgendered straight non-queer male.
